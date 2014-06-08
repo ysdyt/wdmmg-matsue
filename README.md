@@ -7,7 +7,7 @@ Where Does My Money Go? 島根県松江市版（2013年7月21日稼働）は、�
 
 Core Member: (@は Twitter Account)
 
-吉田　勇太(Yuta Yoshida), @yutatatatata
+吉田　勇太(Yuta Yoshida), @yutatatatata, http://ysdyt.net/
 桑原　陸也(Rikuya Kuwabara), @cog1t0
 
 
