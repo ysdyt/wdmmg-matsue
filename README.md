@@ -1,3 +1,4 @@
+test
 「税金はどこへ行った？」 for 島根県松江市版
 
 wheredoesmymoney.orgの島根県松江市版です．
